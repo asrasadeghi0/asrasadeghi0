@@ -13,10 +13,9 @@ Areas of Interest
 
 Connect with Me
 
-* 🌐 Personal Website
-* 💼 LinkedIn
+* 🌐 Website: https://asra-sadeghi-portfolio-0b7o.b12sites.com/
+* 💼 LinkedIn: https://www.linkedin.com/in/asra-sadeghi-64935b439/
 
 ⸻
 
 Always learning, building, and exploring new ideas.
-
