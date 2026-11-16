@@ -19,3 +19,17 @@ Connect with Me
 ⸻
 
 Always learning, building, and exploring new ideas.
+
+Team & Activities
+
+AMCI Team
+
+Team member contributing to:
+
+* Website Design & Development
+* Graphic Design
+* Visual Identity
+
+🌐 Telegram: https://t.me/amci_team
+
+📸 Instagram: https://www.instagram.com/amci.team/
